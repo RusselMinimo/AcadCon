@@ -1,1 +1,1 @@
-# AcadCon
+# AcadCon - pls help
